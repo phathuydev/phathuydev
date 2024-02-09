@@ -1,0 +1,5 @@
+- 👋 Chào bạn, tôi là Lữ Phát Huy
+- 👀 Tôi sinh ra và lớn lên ở Kiên Giang
+- 🌱 Tôi Sinh Năm 2004
+- 💞️ Tôi có cô người yêu tên là Thảo
+- 📫 Tôi học tập và làm việc tại Cần Thơ
